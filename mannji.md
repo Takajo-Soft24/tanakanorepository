@@ -3,5 +3,7 @@
   
 田中　一希
 
+twitter→(https://twitter.com/tkaz_letmf)
+
 # 以下、原田さ●し
 ![](悟志イキリ.jpg)
